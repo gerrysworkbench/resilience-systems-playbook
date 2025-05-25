@@ -20,4 +20,4 @@ And when people stop trusting alerts, they start relying on whispers, Facebook c
 
 This reflection will expand into field-tested strategies, cultural insights, and integration points for better alert delivery across racial, linguistic, housing, and access lines.
 
-Because when alerts only work for the most resourced among us, they’re not public safety tools. They’re exclusion devices w
+Because when alerts only work for the most resourced among us, they’re not public safety tools. They’re exclusion devices with a signal.
